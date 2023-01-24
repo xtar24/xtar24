@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @xtar24
-- 👀 I’m interested in ...meeting new people and learing new skills
+- 👀 I’m interested in ...meeting new people and learning new skills
 - 🌱 I’m currently learning ...software engineering
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...+2348169909614
